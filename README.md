@@ -1,1 +1,1 @@
-# BE-A-GOOD-MUSLIM-Melalui-Belajar-Akhlak-
+# BE-A-GOOD-MUSLIM-Belajar-melalui-Akhlak-
